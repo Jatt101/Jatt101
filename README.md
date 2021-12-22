@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jatt101
-- 👀 I’m interested in sharing differants cultures in NFT'S
+- 👀 I’m interested in sharing different cultures in NFT'S
 - 🌱 I’m currently learning how to create an NFT and how to sell nft
 - 💞️ I’m looking to collaborate on openseas
 - 📫 How to reach me by email 
